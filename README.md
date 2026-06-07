@@ -13,6 +13,12 @@
   <p align="center"> $\color{#82939d}{\textsf{i speak english and russian. my english is}}$ $\color{#82939d}{\textsf{pretty bad and my memory is too, so}}$ $\color{#82939d}{\textsf{please don't expect me to say something}}$ $\color{#82939d}{\textsf{back.}}$
 <p align="center"> $\color{#acbc3e}{\textsf{interact and c+h everytime you can}}$ $\color{#acbc3e}{\textsf{unless you're in my dni or my nickname}}$ $\color{#acbc3e}{\textsf{says otherwise. i appreciate it.}}$ <br>
 
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31ojtnffpro77mk4hkdhmadyp6ba&cover_image=true&theme=natemoo-re&show_offline=true&background_color=d3d0c4&interchange=false&profanity=false&bar_color=d3d0c4&bar_color_cover=false">
+  </a>
+</p>
+
   _____
 
   
