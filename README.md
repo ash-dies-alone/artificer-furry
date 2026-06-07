@@ -5,7 +5,7 @@
   
 <p align="center"> $\color{#acbc3e}{\textsf{ash . 16 yrs old}}$ <br>
 <p align="center"> $\color{#82939d}{\textsf{preferred pronouns are he/it.}}$ <br>
-<p align="center"> $\color{#94a794}{\textsf{dni - 18+(until i do) or 15- and supporters of}}$ $\color{#94a794}{\textsf{anything problematic. forsaken is my thin}}$ $\color{#94a794}{\textsf{ice.}}$ <br>
+<p align="center"> $\color{#94a794}{\textsf{dni - 18+ or 15- (until i do) and supporters of}}$ $\color{#94a794}{\textsf{anything problematic. forsaken is my thin}}$ $\color{#94a794}{\textsf{ice.}}$ <br>
 
 <p align="center"> <img src="https://64.media.tumblr.com/4ab08389650d31476de1656e382a872d/e4eccd3b03350099-64/s400x600/25867d3f938cf30b2031a8f51ed668b4ad0d6c33.pnj"/>
  
