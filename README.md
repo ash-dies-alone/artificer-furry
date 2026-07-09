@@ -21,6 +21,12 @@
 
 <p align="center">
   <a href="https://aoshi.atabook.org/">SIGN ATA</a>
+
+  <p align="center">
+  <a href="https://rentry.co/aosh">and check my rentry</a>
+
+  <p align="center">
+  <a href="https://artfight.net/~aoshi">AND check my artfight profile!!</a>
   
   _____
 
