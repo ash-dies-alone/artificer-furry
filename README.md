@@ -6,6 +6,10 @@
 
 <p align="center"> <img width="500" src="https://file.garden/arv1ydKOZktpDalU/V%20GITHUB.png" /> </p>
 
-<img width="400" src="https://github.com/user-attachments/assets/4b580a0a-bda0-42b8-904d-4cd37b05cf2e" /> <img width="200" src="https://github.com/user-attachments/assets/19bd99bf-24ed-41d8-ac13-513587896157" /> <img width="400" src="https://github.com/user-attachments/assets/f32258f7-f185-4e44-90b9-78446da1491a" />
+  <a href="https://aoshi.atabook.org/">
+<img width="200" src="https://aoshifullalalalal.carrd.co/assets/images/image18.png?v=edbff278" /> 
+<img width="50" src="https://github.com/user-attachments/assets/19bd99bf-24ed-41d8-ac13-513587896157" /> 
+  <a href="https://drkellin.straw.page/">
+<img width="160" src="https://aoshifullalalalal.carrd.co/assets/images/image19.png?v=edbff278" />
 
 
