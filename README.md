@@ -11,8 +11,8 @@
 ![](https://komarev.com/ghpvc/?username=ashfies&color=3a2629&base=400)
 
 <p align="center"> <img width="500" src="https://file.garden/arv1ydKOZktpDalU/V%20GITHUB.png" /> </p>
-
-[<img width="200" src="https://aoshifullalalalal.carrd.co/assets/images/image18.png?v=edbff278" />](https://aoshi.atabook.org)
+ 
+[<img width="192" src="https://aoshifullalalalal.carrd.co/assets/images/image18.png?v=edbff278" />](https://aoshi.atabook.org)
 <img width="50" src="https://github.com/user-attachments/assets/19bd99bf-24ed-41d8-ac13-513587896157" /> 
   <a href="https://drkellin.straw.page/">
 [<img width="160" src="https://aoshifullalalalal.carrd.co/assets/images/image19.png?v=edbff278" />](https://drkellin.straw.page/)
